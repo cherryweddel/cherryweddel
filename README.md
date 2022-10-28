@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cherryweddel
-- 👀 I’m interested in beautiful girls.
-- 🌱 I’m currently learning how to pursue girls.
-- 💞️ I’m looking to collaborate on pursuing girls.
+- 👀 I’m only interested in 11.
+- 🌱 I’m currently learning how to love 11.
+- 💞️ I’m looking to collaborate on loving 11.
 - 📫 You can contact me on telegram @cherryweddel
 
 <!---
